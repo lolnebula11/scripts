@@ -1,1 +1,1 @@
-# d4n.lol (Founded by d4n)
+# d4n.lol (founded by d4n)
